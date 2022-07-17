@@ -4,33 +4,33 @@
                                          T O O L  ♥  F E A T U R E S
 ====================================================================================== -----------Customized Pages-------------♥♥♥-----------------New Pages-----------------
 
-♥♥♥FACEBOOK===========================♥♥♥FLIPCART
+♥♥♥FACEBOOK===========================
 
-♥♥♥GOOGLE=============================♥♥♥TELEGRAM
+♥♥♥FLIPCART
 
-♥♥♥TWITTER============================♥♥♥iPFINDER
+♥♥♥GOOGLE=============================
 
-♥♥♥INSTAGRAM==========================♥♥♥LIBERTPAY
+♥♥♥TELEGRAM
 
-♥♥♥SNAPCHATM==========================♥♥♥REDDIT
+♥♥♥TWITTER============================
 
-♥♥♥YAHOO==============================♥♥♥TIKTOK
+♥♥♥iPFINDER
 
-♥♥♥LINKEDIN===========================♥♥♥EXPERT-IQ
+♥♥♥INSTAGRAM========================
 
-♥♥♥MICROSOFT==========================♥♥♥SNAPFISH
+♥♥♥SNAPCHATM========================
 
-♥♥♥APPLE-ID===========================♥♥♥YOUTUBE
+♥♥♥LINKEDIN===========================
 
-♥♥♥PROTOMAIL==========================♥♥♥WT-SOCIAL
+♥♥♥EXPERT-IQ
 
-♥♥♥WiFi===============================♥♥♥QUORA
+♥♥♥MICROSOFT========================
 
-♥♥♥WORDPRESS
+♥♥♥APPLE-ID===========================
 
-♥♥♥BADOO
+♥♥♥YOUTUBE
 
-♥♥♥SHOPIFY
+♥♥♥WiFi=============================
 
 ♥♥♥PAYPAL
 
@@ -38,22 +38,5 @@
 
 ♥♥♥PINTERESAT
 
-♥♥♥VERIZON
+♥️♥️♥️AMAZON
 
-STREAM
-
-TWITCH
-
-YANDEX
-
-DEVIAN-ART
-
-SHOPPING
-
-AMAZON
-
-iCLOUD
- 
-SPOTIFY
-
- DROPBOX
